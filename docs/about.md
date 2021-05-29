@@ -1,0 +1,3 @@
+Hey there! Wassup! 
+
+My Name's Deepak and I run this blog. I studied Electrical and Electronics Engineering in college and worked for a startup as a Hardware Design Engineer for over 4 years. Blah Blah... 
